@@ -1,4 +1,4 @@
-# OneCity Vancouver
+# About OneCity Vancouver
 
 OneCity Vancouver is a progressive municipal political party and registered elector organization under the Local Elections Campaign Financing Act (LECFA) in British Columbia. We are committed to building a more inclusive, sustainable, and equitable city by organizing to elect candidates who share our vision. We advocate for policies that promote environemntal and social justice, public health and safety, and shared economic prosperity. Our vision includes affordable housing, walkable neighbourhoods with accessible public transit, and a green economy that benefits all residents.
 
